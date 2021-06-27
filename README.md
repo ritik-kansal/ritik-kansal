@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://ritikkansal.com](https://ritikkansal.com)
 
-- 📫 How to reach me **ritikkansal.com**
+- 📫 How to reach me **ritikkansal5@gmail.com**
 
 - 📄 Know about my experiences [https://ritikkansal.com/resume-ritik.pdf](https://ritikkansal.com/resume-ritik.pdf)
 
